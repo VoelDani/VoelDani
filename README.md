@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VoelDani Gamer, Headhunter and Martial Arts Fan. Always with full speed and sometimes with Volbeat. 
+- 👋 Hi, I’m @VoelDani Gamer, Recruiter and Martial Arts Fan. Always with full speed and sometimes with Volbeat. 
 - 👀 I’m interested in connecting with people who are interested in finding their perfect-job-fit
 - 📫 How to reach me: d.abidi@searchperfect.de
 
